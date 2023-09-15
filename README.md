@@ -1,0 +1,1 @@
+# SafePal-Wallet-Multi-Crypto-Secure-Gui-Multi-Coin-Storage
